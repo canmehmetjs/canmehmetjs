@@ -1,6 +1,6 @@
-# 💫 Can Mehmet - Senior Web, AI &  Blockchain Developer |  Open for Collaboration
+# 👨‍💻 Can Mehmet - Senior Web, AI &  Blockchain Developer |  Open for Collaboration
 
-👨‍💻 **Can Mehmet**  
+**Can Mehmet**  
 ** Senior Web, AI &  Blockchain Developer ** | Open for Collaboration**  
 📍 Kosovo  
 
